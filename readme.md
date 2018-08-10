@@ -5,3 +5,5 @@ meu pc ta altas carrosa
 fazendo mais testes
 
 passar pra proxima parte
+
+tenso demais
